@@ -1,2 +1,1 @@
-# My_New_Page-
-Creating a web-page For my new company
+I'm creating a new web page to my new firm with my wife.
